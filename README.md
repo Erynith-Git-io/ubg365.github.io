@@ -20,7 +20,7 @@
 ## Introduction  
 Let’s face it: Gaming isn’t just a hobby—it’s therapy, a social lifeline, and a way to escape the daily grind. But what happens when school, work, or regional filters slam the door on your fun? That’s where **UBG365 Unblocked** comes in. This isn’t just another gaming site; it’s a movement. A movement to reclaim your right to play, connect, and unwind *anywhere*.  
 
-[![GIF](https://imgur.com/tOYCGqu)](https://topstoryindia.com)
+[![GIF](https://imgur.com/tOYCGqu.gif)](https://topstoryindia.com)
 
 
 
